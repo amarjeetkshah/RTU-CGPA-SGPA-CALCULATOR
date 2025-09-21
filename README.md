@@ -37,7 +37,7 @@ This project is for **educational use only**. Do not redistribute or use parts o
 ## 📬 Contact
 
 For feedback, suggestions or collaboration:   
-🔗 [LinkedIn](www.linkedin.com/in/yash-kumar-vaishnav-48b062220)
+🔗 [LinkedIn](https://www.linkedin.com/in/amarjeetkumarshah/)
 
 ---
 
